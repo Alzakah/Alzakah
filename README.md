@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Alzakah
+- 👋 Hi, I’m @Jahfeu904x
 - 👀 I’m interested in design, creativity, digital experiences and writing
 - 🌱 I’m currently learning design strategy
 - 💞️ I’m looking to collaborate on a breathing exercise web app
